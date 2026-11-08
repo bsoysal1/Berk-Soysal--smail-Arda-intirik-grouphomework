@@ -1,1 +1,1 @@
-# Berk-Soysal--smail-Arda-intirik-grouphomework
+# Berk-Soysal--Ismail-Arda-Cintirik-grouphomework
